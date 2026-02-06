@@ -1,3 +1,3 @@
-# 💕 For My Dearest Cusnat - A Digital Love Letter
+For My Dearest A Digital Letter
 
 A romantic, pastel-pink themed website dedicated to Cusnat for Valentine's Day 2026.
